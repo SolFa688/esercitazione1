@@ -7,4 +7,4 @@ Ciao!
 
 Topolino, Paperino e Pippo vorrebbero andare in vacanza
 
-ùjjjj
+Elisa, Topolino, Paperino e Pippo vanno in vacanza
